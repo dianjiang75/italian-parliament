@@ -1,3 +1,5 @@
+(https://fede-giorgi.github.io/italian-parliament/)
+
 To anyone watching from abroad, Italian politics probably looks like chaos. Since 1946, Italy has burned through nearly 70 different governments, which works out to one every 13 months or so. The system was built after Mussolini to make sure no one could grab too much power, but it has caused decades of fragile coalitions and political conflicts.
 
 As two Italians, we've grown up watching the same cycle play out. 
